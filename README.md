@@ -4,6 +4,7 @@
 <img align="right" alt="Coding" width="400" src="https://38.media.tumblr.com/a401eaca1220428dc37379cbd7312e16/tumblr_nv44lndz1l1u6xnmoo1_1280.gif">
 
 - 📫 How to reach me **himanshu.mali911@gmail.com**
+- ⚡ Bet you didn't know that **the first computer "bug" was a real-life bug**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
